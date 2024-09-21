@@ -1,1 +1,1 @@
-# AI-Mechanical-Engineering-
+# AI-Mechanical Engineering
